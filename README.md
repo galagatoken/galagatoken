@@ -13,7 +13,7 @@ Buy Galagatoken $GLG Soon
 
 
 Tokenomics
-
+  
 
 
 
